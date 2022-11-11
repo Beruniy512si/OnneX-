@@ -1,2 +1,0 @@
-# OnneX-
-OnneX uz
